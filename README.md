@@ -1,0 +1,1 @@
+# Mcdonalds-Fast-Food-study-market-segmentation-
